@@ -1,5 +1,7 @@
 ### LasVegasDicee
 
 
-https://github.com/rkorucu/LasVagasDicee/assets/68940507/08f170c4-6012-493f-aed0-4ca2cdbe869e
+
+https://github.com/rkorucu/LasVegasDicee/assets/68940507/2548560d-febb-4e3f-80ea-c92d7d70918f
+
 
